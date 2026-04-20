@@ -1,1 +1,1 @@
-Answer for the question above.
+Answer for the quest above.
