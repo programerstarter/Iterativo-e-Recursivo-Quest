@@ -1,1 +1,1 @@
-Answer to a question
+Answer for the question above.
